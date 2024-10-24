@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @OPIUM66
-- 👀 I’m interested in freedom
+Hi, I’m @OPIUM66 & interested in freedom
